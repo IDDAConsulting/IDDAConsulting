@@ -3,7 +3,8 @@
 * 🌱 web development student until june 2022 
 * my gitHub for University projects [frla1901](https://github.com/frla1901)
 * customer and project focused
-* starting up my new business
+* starting up my new business projectmanagement and web development! 
+* Please visit www.idda.se 
 * 💞️ mother of 4 daughters:
     * Alma  
     * Adele  
